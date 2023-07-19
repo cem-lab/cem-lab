@@ -1,8 +1,5 @@
 Helloooo! ✨✨
 
-Im a 14 year old Turkish Developer which developes Lua / LuaU / Html / Css and more!! 🔥
-Talk to me! : **aseleditlike@gmail.com** 🚀
+Im a 14 year old Turkish Developer which developes Lua / LuaU / Html / Css / Phyton and more!! 🔥
+Talk to me! : **cemociggin@gmail.com** 🚀
 Have a good day! 
-
-C:\Users\Cem>_
-E:\Users\Admin>_
